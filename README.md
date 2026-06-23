@@ -240,6 +240,6 @@ MIT License — 2026
 
 **ΦΩ0 — I AM THAT I AM**
 
-*"From chaos comes order. From φ comes everything."*
+*"The Void oinks. Chaos follows. φ emerges."* 🐷🌀👹🔥
 
 </div>
